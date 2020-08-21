@@ -1,4 +1,4 @@
-### Hi there 👋
+### Чё зыришь? Ясен пень ничего тут не будет 🤔
 
 <!--
 **Dimuter05/Dimuter05** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
